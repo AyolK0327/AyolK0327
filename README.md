@@ -1,4 +1,4 @@
-### Hi there 👋
+### 👋 Hi there 
 ### 😄 Killing fish in RT-Mart during the day and writing code at home at night
 
 
